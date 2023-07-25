@@ -7,7 +7,7 @@
 </p>
 
 
-Confira a aplicação: https://cutt.ly/rafaelly_anascimento
+Confira a aplicação: https://cutt.ly/relly_use
 
 ## :page_facing_up: Explicação
 
